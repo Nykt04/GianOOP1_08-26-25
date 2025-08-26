@@ -10,5 +10,5 @@ Eldest Son in a family of four
 2nd Year BSCS College Student(2025-2026)
 Aspiring WebDev
 Soon 6 digits earnings
-I do like Manga/hua/hwa, anime, and movies.
+I do like Mangua/hua/hwa, anime, and movies.
 Water is Good, Lloyd is Water, therefore Lloyd is Good (Greatest Estate Developer Manhwa Reference)
